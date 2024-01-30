@@ -1,1 +1,1 @@
-Logo for a company names as Nepal Kadhanya
+Logo for a company named as Nepal Kadhanya
